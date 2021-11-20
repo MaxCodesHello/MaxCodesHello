@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on discord bots, websites, etc.
 - 📫 at the moment, no
 
+I'm working on my read me, be patient
